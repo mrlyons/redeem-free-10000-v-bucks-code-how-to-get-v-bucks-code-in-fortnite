@@ -2,7 +2,7 @@
 
 Are you ready to elevate your Fortnite game to the next level? In 2024, Fortnite continues to dominate the gaming landscape with its engaging gameplay, vibrant community, and continuous updates that keep players coming back for more. But wait! What if we told you that you could get your hands on a **FREE 10,000 V-Bucks code**? That's right! Stay with us as we dive into how you can redeem this amazing offer and enhance your Fortnite experience.
 
-[✅🔴👉Get Ultimate Free V-Bucks Code!](https://mrlyons.github.io/freecode/)
+## [✅🔴👉Get Ultimate Free Code Here!](https://mrlyons.online/giftcards/)
 
 ## What are V-Bucks?
 
